@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on [an unblocked games site.](https://gmo298.gihub.io)
 
-- 📫 How to reach me **gmo298 on discord.**
+- 📫 How to reach me: **Discord, my user is gmo298.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
